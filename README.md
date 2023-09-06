@@ -6,4 +6,7 @@ diciplina de pensamento computacional 👩‍💻
 
 
 
+
+
+
 ![](https://media.tenor.com/Pni1r5CHRuMAAAAC/beijo-do-macaco-macaco.gif)
